@@ -3,16 +3,11 @@ id_livro: 25082025005308
 isbn: "9781576979433"
 titulo: A Bíblia Sagrada
 autor: Deus
-capa_url: https://images.tcdn.com.br/img/img_prod/705201/biblia_pastoral_capa_cristal_letra_grande_2827_1_4ff244438bfeb73e79cce31ce27f7048_20250818103926.jpg
-ano_publicacao: 2017-01-09T00:00:00
 editora: Paulus Editora
 pages: "1003"
 chapters: "66"
 categoria: cristão
 idioma: pr-br
-completed: false
-avaliacao: 5
-rating: ★★★★★
 tags:
   - cristão
 ---
