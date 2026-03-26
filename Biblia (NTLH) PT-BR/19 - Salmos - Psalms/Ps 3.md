@@ -1,0 +1,72 @@
+---
+Aliases: [Psalms 3]
+tags: [Salmos---Psalms]
+---
+# Psalms 3
+
+[[Ps 2|← Psalms 2]] | [[Salmos]] | [[Ps 4|Psalms 4 →]]
+***
+
+
+# Salmos 3 (Nova Traduҫão na Linguagem de Hoje 2000)
+Oração pedindo a ajuda de Deus
+
+##### Chapter 3
+
+
+###### 1 
+Ó Senhor Deus, tenho tantos inimigos!  
+São muitos os que se viram contra mim!  
+
+
+
+###### 2 
+Eles conversam a meu respeito e dizem:  
+"Deus não o ajudará!"
+
+
+
+###### 3 
+Mas tu, ó Senhor, me proteges  
+    como um escudo.  
+Tu me dás a vitória  
+e renovas a minha coragem.  
+
+
+
+###### 4 
+Eu chamo o Senhor para me ajudar,  
+e lá do seu monte santo  
+    ele me responde.
+
+
+
+###### 5 
+Eu me deito, e durmo tranquilo,  
+e depois acordo  
+    porque o Senhor me protege.  
+
+
+
+###### 6 
+Não tenho medo  
+    dos milhares de inimigos  
+que me ameaçam de todos os lados.
+
+
+
+###### 7 
+Vem, ó Senhor!  
+    Salva-me, meu Deus!  
+Tu atacas os meus inimigos;  
+tu humilhas os maus  
+    e acabas com o seu poder.  
+
+
+
+###### 8 
+És tu que dás a vitória.  
+Ó Senhor Deus, abençoa o teu povo.
+
+***
+[[Ps 2|← Psalms 2]] | [[Salmos]] | [[Ps 4|Psalms 4 →]]

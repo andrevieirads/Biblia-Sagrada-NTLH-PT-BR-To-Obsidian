@@ -1,0 +1,85 @@
+---
+Aliases: [Psalms 8]
+tags: [Salmos---Psalms]
+---
+# Psalms 8
+
+[[Ps 7|← Psalms 7]] | [[Salmos]] | [[Ps 9|Psalms 9 →]]
+***
+
+
+# Salmos 8 (Nova Traduҫão na Linguagem de Hoje 2000)
+A grandeza de Deus e o valor do ser humano
+
+##### Chapter 8
+
+
+###### 1 
+Ó Senhor, Senhor nosso,  
+a tua grandeza é vista  
+    no mundo inteiro.  
+O louvor dado a ti chega até o céu  
+
+
+
+###### 2 
+e é cantado pelas crianças  
+    e pelas criancinhas de colo.  
+Tu construíste uma fortaleza  
+    para te proteger dos teus inimigos,  
+para acabar com todos  
+    os que te desafiam.
+
+
+
+###### 3 
+Quando olho para o céu,  
+    que tu criaste,  
+para a lua e para as estrelas,  
+    que puseste nos seus lugares --  
+
+
+
+###### 4 
+que é um simples ser humano  
+    para que penses nele?  
+Que é um ser mortal  
+    para que te preocupes com ele?
+
+
+
+###### 5 
+No entanto, fizeste o ser humano  
+    inferior somente a ti mesmo  
+e lhe deste a glória e a honra  
+    de um rei.  
+
+
+
+###### 6 
+Tu lhe deste poder  
+    sobre tudo o que criaste;  
+tu puseste todas as coisas  
+    debaixo do domínio dele:  
+
+
+
+###### 7 
+as ovelhas e o gado  
+    e os animais selvagens também;  
+
+
+
+###### 8 
+os pássaros e os peixes  
+    e todos os seres que vivem no mar.
+
+
+
+###### 9 
+Ó Senhor, nosso Deus,  
+a tua grandeza é vista  
+    no mundo inteiro.
+
+***
+[[Ps 7|← Psalms 7]] | [[Salmos]] | [[Ps 9|Psalms 9 →]]

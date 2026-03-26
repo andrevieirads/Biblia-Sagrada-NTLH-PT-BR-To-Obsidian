@@ -1,0 +1,44 @@
+---
+Aliases: [Malachi 4]
+tags: [Malaquias---Malachi]
+---
+# Malachi 4
+
+[[Mal 3|← Malachi 3]] | [[Malaquias]]
+***
+
+
+# Malaquias 4 (Nova Traduҫão na Linguagem de Hoje 2000)
+O Dia do Senhor
+
+##### Chapter 4
+
+
+###### 1 
+O Senhor Todo-Poderoso diz:
+-- Está chegando o dia em que todos os orgulhosos e todos os maus serão queimados como a palha é queimada na fogueira. Naquele dia, eles queimarão e serão completamente destruídos.  
+
+
+###### 2 
+Mas, para vocês que me temem, a minha salvação brilhará como o sol, trazendo vida nos seus raios. Vocês saltarão de alegria, como bezerros que saem saltando do curral.  
+
+
+###### 3 
+Naquele dia que estou preparando, vocês pisarão os maus como se eles fossem o pó da rua.
+
+
+
+###### 4 
+-- Lembrem da Lei do meu servo Moisés, de todos os mandamentos e ensinamentos que eu dei a ele no monte Sinai para todo o povo de Israel obedecer.
+
+
+
+###### 5 
+-- Mas, antes que chegue aquele grande e terrível dia, eu, o Senhor, lhes enviarei o profeta Elias.  
+
+
+###### 6 
+Ele fará com que pais e filhos façam as pazes para que eu não venha castigar o país e destruí-lo completamente.
+
+***
+[[Mal 3|← Malachi 3]] | [[Malaquias]]

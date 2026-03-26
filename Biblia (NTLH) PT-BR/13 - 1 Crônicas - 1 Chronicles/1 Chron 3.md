@@ -1,0 +1,113 @@
+---
+Aliases: [1 Chronicles 3]
+tags: [1-Cronicas---1-Chronicles]
+---
+# 1 Chronicles 3
+
+[[1 Chron 2|← 1 Chronicles 2]] | [[1 Crônicas]] | [[1 Chron 4|1 Chronicles 4 →]]
+***
+
+
+# 1 Crônicas 3 (Nova Traduҫão na Linguagem de Hoje 2000)
+Os filhos do rei Davi
+
+##### Chapter 3
+
+
+###### 1 
+
+###### 1-3 São estes, por ordem de idade, os filhos de Davi que nasceram quando ele estava em Hebrom:
+Amnom, filho de Ainoã, de Jezreel; Daniel, filho de Abigail, de Carmelo; Absalão, filho de Maacá, que era filha de Talmai, rei de Gesur; Adonias, filho de Hagite; Sefatias, filho de Abital; Itreão, filho de Eglá.  
+
+
+###### 4 
+Esses seis nasceram em Hebrom durante os sete anos e meio em que Davi reinou ali.
+Ele reinou trinta e três anos em Jerusalém,  
+
+
+###### 5 
+e muitos filhos dele nasceram ali. A sua mulher Bate-Seba, filha de Amiel, lhe deu quatro filhos: Samua, Sobabe, Natã e Salomão.
+
+
+
+###### 6 
+Davi foi pai de outros nove filhos: Ibar, Elisua, Elpelete,  
+
+
+###### 7 
+Noga, Nefegue, Jafia,  
+
+
+###### 8 
+Elisama, Eliada e Elifelete.  
+
+
+###### 9 
+Além de todos esses, Davi também teve filhos com as suas concubinas. Ele também foi pai de uma filha chamada Tamar.Os descendentes do rei Salomão
+
+
+
+###### 10 
+Salomão foi pai de Roboão, Roboão foi pai de Abias, Abias foi pai de Asa, e Asa foi pai de Josafá;  
+
+
+###### 11 
+Josafá foi pai de Jeorão, Jeorão foi pai de Acazias, e Acazias foi pai de Joás;  
+
+
+###### 12 
+Joás foi pai de Amazias, Amazias foi pai de Uzias, e Uzias foi pai de Jotão;  
+
+
+###### 13 
+Jotão foi pai de Acaz, Acaz foi pai de Ezequias, e Ezequias foi pai de Manassés;  
+
+
+###### 14 
+Manassés foi pai de Amom, e Amom foi pai de Josias.
+
+
+
+###### 15 
+Josias foi pai de quatro filhos: Joanã, Jeoaquim, Zedequias e Joacaz.  
+
+
+###### 16 
+Jeoaquim foi pai de dois filhos: Joaquim e Zedequias.Os descendentes do rei Joaquim
+
+
+
+###### 17 
+São estes os descendentes do rei Joaquim, que foi levado prisioneiro pelos babilônios. Joaquim foi pai de sete filhos: Salatiel,  
+
+
+###### 18 
+Malquirão, Pedaías, Senazar, Jecamias, Hosama e Nedabias.  
+
+
+###### 19 
+Pedaías foi pai de dois filhos: Zorobabel e Simei. Zorobabel foi pai de dois filhos: Mesulã e Hananias. Também foi pai de uma filha chamada Selomite.  
+
+
+###### 20 
+Zorobabel foi pai de mais cinco filhos: Hasuba, Oel, Berequias, Hasadias e Jusabe-Hesede.
+
+
+
+###### 21 
+Hananias foi pai de dois filhos: Pelatias e Jesaías. Jesaías foi pai de Refaías, Refaías foi pai de Arnã, Arnã foi pai de Obadias, e Obadias foi pai de Secanias.  
+
+
+###### 22 
+Secanias foi pai de um filho chamado Semaías e teve cinco netos: Hatus, Igal, Barias, Nearias e Safate.  
+
+
+###### 23 
+Nearias foi pai de três filhos: Elioenai, Ezequias e Azricã.  
+
+
+###### 24 
+Elioenai foi pai de sete filhos: Hodavias, Eliasibe, Pelaías, Acube, Joanã, Delaías e Anani.
+
+***
+[[1 Chron 2|← 1 Chronicles 2]] | [[1 Crônicas]] | [[1 Chron 4|1 Chronicles 4 →]]
